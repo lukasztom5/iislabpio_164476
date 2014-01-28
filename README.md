@@ -1,1 +1,2 @@
-Łukasz Tomczyk 164476
+164476 wtorek x2 BDiSE
+
